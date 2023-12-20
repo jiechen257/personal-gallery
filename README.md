@@ -1,1 +1,1 @@
-## As a graphic hosting service used in daily life
+## As an image hosting service used in daily life
